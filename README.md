@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (https://t.me/Utkirvic)
 - 😄 Pronouns: he/his
-- ⚡ Exat fact: Fun of Barselona
+- ⚡ Exact fact: Fun of Barselona
 
 <!---
 Rakhmonberdiyev/Rakhmonberdiyev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
