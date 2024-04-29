@@ -2,7 +2,7 @@
 - 👀 I’m interested in watching movies
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://t.me/vagueness_10
+- 📫 How to reach me (https://t.me/Utkirvic)
 - 😄 Pronouns: he/his
 - ⚡ Exat fact: Fun of Barselona
 
