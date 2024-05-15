@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me (https://t.me/Utkirvic)
 - 😄 Pronouns: he/his
+- 🎓 New Uzbekistan University
 
 <!---
 Rakhmonberdiyev/Rakhmonberdiyev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
